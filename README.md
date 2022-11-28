@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @am10akshanmuhammed10
+- 👋 Hi, I’m @Akshan Muhammed 10
 - 👀 I’m interested in coding
 - 🌱 I’m currently a student 
 - 📫 Reach me on Telegram: @am10_akshan_muhd_10
